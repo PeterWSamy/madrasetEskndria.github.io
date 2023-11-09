@@ -1,2 +1,0 @@
-# madrasetEskndria
-## مشروع الكتاب المقدس
